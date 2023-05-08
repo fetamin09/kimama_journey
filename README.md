@@ -1,1 +1,0 @@
-# kimama_journey
